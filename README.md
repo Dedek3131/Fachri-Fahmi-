@@ -1,2 +1,2 @@
-# Fachri-Fahmi-
-Sangat cocok untuk saya
+# Fachri-Fahmi
+NO WOMAN NO CRY
